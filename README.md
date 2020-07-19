@@ -1,1 +1,1 @@
-# Analisando-a-ocorrencia-de-feminic-dio-no-RJ
+# Analisando-a-ocorrencia-de-feminicidio-no-RJ
